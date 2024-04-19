@@ -28,6 +28,9 @@ If you have any questions, inquiries, or collaboration opportunities related to 
 Thank you for visiting my Certification Repository. I hope you find it informative and inspiring!
 
 A Chandra Kishan Singha
+
 Email : chandra21kishan@gmail.com
+
 Contact : +91 8788646175
+
 Linkedin Profile : https://www.linkedin.com/in/a-chandra-kishan-singha-b5461022a/
